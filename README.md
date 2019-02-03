@@ -1,1 +1,1 @@
-# Mega Mall Story Helper site
+[/privacy_policy.html](Privacy Policy)
